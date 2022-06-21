@@ -1,1 +1,1 @@
-Let's have fun guys
+Let's keep it simple
